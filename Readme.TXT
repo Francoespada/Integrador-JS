@@ -1,1 +1,0 @@
-Desarrollado por Franco Espada
